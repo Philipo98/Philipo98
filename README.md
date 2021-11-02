@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Philipo98
+- 👀 I’m interested in the world and the strings that hold it together
+- 🌱 I’m currently learning mind bending
+- 💞️ I’m looking to collaborate on making a better world
+- 📫 How to reach me: minehunter@live.de
